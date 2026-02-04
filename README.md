@@ -13,6 +13,6 @@ what are protocols
 
 building my foundation of basic networking as i start my journey in cybersecurity.
 
-![My certificate](https://drive.google.com/file/d/1hAW1eQhkXPzy0rGxP4GXb-CqM8pHbFzv/view?usp=sharing)
+![My certificate](https://i.postimg.cc/6qSfSYGk/Screenshot-From-2026-02-04-13-59-53.png)
 
 
